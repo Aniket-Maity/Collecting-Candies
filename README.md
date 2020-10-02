@@ -1,4 +1,4 @@
-Collecting Candies
+Collecting Candies- Greate thinking
 
 
 Krishna loves candies a lot, so whenever he gets them, he stores them so that he can eat them later whenever he wants to.
